@@ -1,5 +1,5 @@
 - 👋 Hey, eu sou a @leticiaperolis
-- 🍁 gosto de música e moda
+- 🍁 gosto de música 
 - 💌 sou boa aprendendo novos idiomas
 - 💗 gosto de estudar mitologia
 - 🌪️ tenho vontade de fazer faculdade :)
